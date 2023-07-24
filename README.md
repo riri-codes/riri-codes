@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @riricodes802 #
+# 👋 Hi, I’m @riri-codes #
 
 <b> 🌩️ Learning Cloud and DevOps Enthusiast 👩‍💻</b>
 
